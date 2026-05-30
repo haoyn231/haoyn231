@@ -1,4 +1,4 @@
-### Hi there, I'm Hyrsoft 👋
+### Hi there, I'm haoyn 👋
 
 I'm an undergraduate student majoring in **Electronic and Information Engineering**.
 
